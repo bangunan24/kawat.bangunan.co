@@ -116,7 +116,7 @@ paginate = 6
   name = "{Rina|Siti|Lina|Dewi|Ayu|Sari|Fitri|Maya|Nur|Diah}"
   message = "{Pelayanan kawat.bangunan.co {sangat memuaskan|luar biasa|hebat}. Kawat pagar yang saya {pasang|instal} {berkualitas tinggi|kokoh|tahan lama} dan sesuai dengan {harapan|ekspektasi|keinginan} saya.|Saya {senang|terkesan|puas} dengan layanan dari kawat.bangunan.co. Kawat pagarnya {berkualitas|kokoh|tahan lama} dan sesuai dengan {kebutuhan|proyek} saya.}"
   response = "{Terima kasih! Kami senang dapat {membantu|melayani} Anda dengan kawat pagar {terbaik|unggul}.|Kami sangat menghargai ulasan Anda. Terima kasih telah mempercayakan proyek Anda kepada kami!}"
-  rating = 4.3
+  rating = 4
 
 [[params.testimonials]]
   avatar = "/images/admin/avatar6.png"
