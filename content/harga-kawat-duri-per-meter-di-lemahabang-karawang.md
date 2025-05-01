@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Lemahabang Karawang"
-date: "2024-05-16"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Lemahabang Karawang. Seperti itulah info yang dapat kami uraikan tentang Harga Kawat Duri Per Meter di Lemahabang Karawang jika..."
+title: Harga Kawat Duri Per Meter di Lemahabang Karawang
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Lemahabang Karawang. Seperti itulah info yang
+  dapat kami uraikan tentang Harga Kawat Duri Per Meter di Lemahabang Karawang
+  jika...
 ---
 
 **Harga Kawat Duri Per Meter di Lemahabang Karawang** – Kawat yaitu bagian benda yg terbuat dari logam yang memiliki ukuran panjang dan juga lentur. Kawat dapat diterapkan untuk bermacam-macam hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih sangat banyak yg lainnya.

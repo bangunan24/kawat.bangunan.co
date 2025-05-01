@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tirtamulya Karawang"
-date: "2024-05-25"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tirtamulya Karawang. Itulah uraian yang dapat kami sampaikan tentang Harga Kawat Duri Per Meter di Tirtamulya Karawang seandain..."
+title: Harga Kawat Duri Per Meter di Tirtamulya Karawang
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tirtamulya Karawang. Itulah uraian yang dapat
+  kami sampaikan tentang Harga Kawat Duri Per Meter di Tirtamulya Karawang
+  seandain...
 ---
 
 **Harga Kawat Duri Per Meter di Tirtamulya Karawang** – Kawat yaitu salah satu benda yg terbuat dari logam yang memiliki ukuran panjang dan juga lentur. Kawat dapat digunakan untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yg yang lain.

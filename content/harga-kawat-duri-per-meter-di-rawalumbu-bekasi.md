@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Rawalumbu Bekasi"
-date: "2024-05-24"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Rawalumbu Bekasi. Itulah info yang bisa kami rincikan tentang Harga Kawat Duri Per Meter di Rawalumbu Bekasi sekiranya anda ter..."
+title: Harga Kawat Duri Per Meter di Rawalumbu Bekasi
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Rawalumbu Bekasi. Itulah info yang bisa kami
+  rincikan tentang Harga Kawat Duri Per Meter di Rawalumbu Bekasi sekiranya anda
+  ter...
 ---
 
 **Harga Kawat Duri Per Meter di Rawalumbu Bekasi** – Kawat merupakan beberapa benda yg terbuat dari logam yang memiliki ukuran panjang dan juga lentur. Kawat bisa digunakan untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih sangat banyak yg yang lain.

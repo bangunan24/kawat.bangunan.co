@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Kebumen"
-date: "2024-05-26"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Kebumen. Seperti itulah beberapa info yang data kami jelaskan perihal Harga Kawat Duri Per Meter di Kebumen. Apabila diantara a..."
+title: Harga Kawat Duri Per Meter di Kebumen
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Kebumen. Seperti itulah beberapa info yang data
+  kami jelaskan perihal Harga Kawat Duri Per Meter di Kebumen. Apabila diantara
+  a...
 ---
 
 **Harga Kawat Duri Per Meter di Kebumen** – Kawat adalah beberapa alat yg digunakan untuk mengait sebuah benda tertentu. Kawat mempunyai bentuk yg kecil dan juga panjang. Kawat dibuat dari logam yg memiliki ukruan sangat panjang dan lentur. Kawat bisa dipakai untuk sangat banyak keadaan seperti penghantar listrik, penghalang suatu benda, pagar, dan beragam kondisi lainnya.
