@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tanah Abang Jakarta"
-date: "2024-06-07"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tanah Abang Jakarta. Itulah informasi yang bisa kami sampaikan mengenai Harga Kawat Duri Per Meter di Tanah Abang Jakarta sekir..."
+title: Harga Kawat Duri Per Meter di Tanah Abang Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tanah Abang Jakarta. Itulah informasi yang bisa
+  kami sampaikan mengenai Harga Kawat Duri Per Meter di Tanah Abang Jakarta
+  sekir...
 ---
 
 **Harga Kawat Duri Per Meter di Tanah Abang Jakarta** – Kawat ialah salah satu benda yg diproduksi dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat digunakan untuk beragam hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yg lainnya.

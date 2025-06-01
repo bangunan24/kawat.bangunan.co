@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Pegangsaan Jakarta"
-date: "2024-06-05"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Pegangsaan Jakarta. Demikian info yang dapat kami jelaskan mengenai Harga Kawat Duri Per Meter di Pegangsaan Jakarta bila anda..."
+title: Harga Kawat Duri Per Meter di Pegangsaan Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Pegangsaan Jakarta. Demikian info yang dapat
+  kami jelaskan mengenai Harga Kawat Duri Per Meter di Pegangsaan Jakarta bila
+  anda...
 ---
 
 **Harga Kawat Duri Per Meter di Pegangsaan Jakarta** – Kawat ialah salah satu benda yg dibikin dari logam yg memiliki ukuran panjang dan juga lentur. Kawat dapat dipakai untuk bermacam2 hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yg lainnya.

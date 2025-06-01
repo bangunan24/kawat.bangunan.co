@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Purwasari Karawang"
-date: "2024-06-24"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Purwasari Karawang. Seperti itulah uraian yang dapat kami jelaskan mengenai Harga Kawat Duri Per Meter di Purwasari Karawang se..."
+title: Harga Kawat Duri Per Meter di Purwasari Karawang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Purwasari Karawang. Seperti itulah uraian yang
+  dapat kami jelaskan mengenai Harga Kawat Duri Per Meter di Purwasari Karawang
+  se...
 ---
 
 **Harga Kawat Duri Per Meter di Purwasari Karawang** – Kawat merupakan bagian benda yang dibikin dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat digunakan untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yg yang lain.

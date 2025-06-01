@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Pangkalan Jati Depok"
-date: "2024-06-26"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Pangkalan Jati Depok. Seperti itulah info yang dapat kami rincikan mengenai Harga Kawat Duri Per Meter di Pangkalan Jati Depok..."
+title: Harga Kawat Duri Per Meter di Pangkalan Jati Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Pangkalan Jati Depok. Seperti itulah info yang
+  dapat kami rincikan mengenai Harga Kawat Duri Per Meter di Pangkalan Jati
+  Depok...
 ---
 
 **Harga Kawat Duri Per Meter di Pangkalan Jati Depok** – Kawat adalah beberapa benda yg dibuat dari logam yg memiliki ukuran panjang dan juga lentur. Kawat dapat dipakai untuk bermacam2 hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yg yang lain.

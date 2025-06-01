@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Lawang Gintung Bogor"
-date: "2024-06-02"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Lawang Gintung Bogor. Seperti itulah uraian yang dapat kami uraikan tentang Harga Kawat Duri Per Meter di Lawang Gintung Bogor..."
+title: Harga Kawat Duri Per Meter di Lawang Gintung Bogor
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Lawang Gintung Bogor. Seperti itulah uraian yang
+  dapat kami uraikan tentang Harga Kawat Duri Per Meter di Lawang Gintung
+  Bogor...
 ---
 
 **Harga Kawat Duri Per Meter di Lawang Gintung Bogor** – Kawat yakni bagian benda yang dibikin dari logam yang memiliki ukuran panjang dan juga lentur. Kawat bisa diaplikasikan untuk beraneka hal, apakah itu untuk aliran alur listrik, menghalang sebuah benda, dan masih sangat banyak yg yang lain.

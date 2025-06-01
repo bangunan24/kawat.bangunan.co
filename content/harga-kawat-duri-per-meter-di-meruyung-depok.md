@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Meruyung Depok"
-date: "2024-06-03"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Meruyung Depok. Itulah uraian yg dapat kami sampaikan tentang Harga Kawat Duri Per Meter di Meruyung Depok jika anda tertarik d..."
+title: Harga Kawat Duri Per Meter di Meruyung Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Meruyung Depok. Itulah uraian yg dapat kami
+  sampaikan tentang Harga Kawat Duri Per Meter di Meruyung Depok jika anda
+  tertarik d...
 ---
 
 **Harga Kawat Duri Per Meter di Meruyung Depok** – Kawat merupakan bagian benda yang dibuat dari logam yang memiliki ukuran panjang dan juga lentur. Kawat dapat digunakan untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih begitu banyak yg yang lain.

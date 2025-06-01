@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Slipi Jakarta"
-date: "2024-06-23"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Slipi Jakarta. Demikian uraian yang dapat kami sampaikan tentang Harga Kawat Duri Per Meter di Slipi Jakarta bila anda tertarik..."
+title: Harga Kawat Duri Per Meter di Slipi Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Slipi Jakarta. Demikian uraian yang dapat kami
+  sampaikan tentang Harga Kawat Duri Per Meter di Slipi Jakarta bila anda
+  tertarik...
 ---
 
 **Harga Kawat Duri Per Meter di Slipi Jakarta** – Kawat merupakan beberapa benda yg dibuat dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat dipakai untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yang yang lain.

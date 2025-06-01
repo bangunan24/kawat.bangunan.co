@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Parung Panjang"
-date: "2024-06-02"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Parung Panjang. Itulah uraian yg dapat kami sampaikan mengenai Harga Kawat Duri Per Meter di Parung Panjang jikalau anda mengin..."
+title: Harga Kawat Duri Per Meter di Parung Panjang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Parung Panjang. Itulah uraian yg dapat kami
+  sampaikan mengenai Harga Kawat Duri Per Meter di Parung Panjang jikalau anda
+  mengin...
 ---
 
 **Harga Kawat Duri Per Meter di Parung Panjang** – Kawat merupakan salah satu benda yang terbuat dari logam yang memiliki ukuran panjang dan juga lentur. Kawat dapat diaplikasikan untuk beragam hal, apakah itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yg lainnya.
