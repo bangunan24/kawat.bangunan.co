@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Pati"
-date: "2024-07-26"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Pati. Demikian informasi yang dapat kami sampaikan perihal Harga Kawat Duri Per Meter di Pati jika anda tertarik dengan produk..."
+title: Harga Kawat Duri Per Meter di Pati
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Pati. Demikian informasi yang dapat kami
+  sampaikan perihal Harga Kawat Duri Per Meter di Pati jika anda tertarik dengan
+  produk...
 ---
 
 **Harga Kawat Duri Per Meter di Pati** – Kawat merupakan salah satu benda yang terbuat dari logam yg memiliki ukuran panjang dan juga lentur. Kawat bisa dipakai untuk bermacam2 hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yg lainnya.

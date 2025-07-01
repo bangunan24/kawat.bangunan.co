@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Sawangan Depok"
-date: "2024-07-08"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Sawangan Depok. Demikian uraian yg dapat kami rincikan mengenai Harga Kawat Duri Per Meter di Sawangan Depok apabila anda mengi..."
+title: Harga Kawat Duri Per Meter di Sawangan Depok
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Sawangan Depok. Demikian uraian yg dapat kami
+  rincikan mengenai Harga Kawat Duri Per Meter di Sawangan Depok apabila anda
+  mengi...
 ---
 
 **Harga Kawat Duri Per Meter di Sawangan Depok** – Kawat merupakan salah satu benda yang dibuat dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat diaplikasikan untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yang yang lain.

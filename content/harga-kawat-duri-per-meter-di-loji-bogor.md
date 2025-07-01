@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Loji Bogor"
-date: "2024-07-24"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Loji Bogor. Demikian penjelasan yg dapat kami sampaikan mengenai Harga Kawat Duri Per Meter di Loji Bogor sekiranya anda berhas..."
+title: Harga Kawat Duri Per Meter di Loji Bogor
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Loji Bogor. Demikian penjelasan yg dapat kami
+  sampaikan mengenai Harga Kawat Duri Per Meter di Loji Bogor sekiranya anda
+  berhas...
 ---
 
 **Harga Kawat Duri Per Meter di Loji Bogor** – Kawat adalah bagian benda yang dibuat dari logam yang memiliki ukuran panjang dan juga lentur. Kawat dapat dipakai untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yg yang lain.

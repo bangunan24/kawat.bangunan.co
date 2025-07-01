@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tirtajaya Depok"
-date: "2024-07-31"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tirtajaya Depok. Demikian info yang dapat kami rincikan perihal Harga Kawat Duri Per Meter di Tirtajaya Depok bila anda berhasr..."
+title: Harga Kawat Duri Per Meter di Tirtajaya Depok
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tirtajaya Depok. Demikian info yang dapat kami
+  rincikan perihal Harga Kawat Duri Per Meter di Tirtajaya Depok bila anda
+  berhasr...
 ---
 
 **Harga Kawat Duri Per Meter di Tirtajaya Depok** – Kawat merupakan salah satu benda yg terbuat dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat diterapkan untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yg lainnya.

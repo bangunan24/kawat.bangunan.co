@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Purbalingga"
-date: "2024-07-30"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Purbalingga. Itulah informasi yg bisa kami jelaskan tentang Harga Kawat Duri Per Meter di Purbalingga kalau anda berminat dg pr..."
+title: Harga Kawat Duri Per Meter di Purbalingga
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Purbalingga. Itulah informasi yg bisa kami
+  jelaskan tentang Harga Kawat Duri Per Meter di Purbalingga kalau anda berminat
+  dg pr...
 ---
 
 **Harga Kawat Duri Per Meter di Purbalingga** – Kawat yakni beberapa benda yang dibuat dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat bisa dipakai untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih begitu banyak yg yang lain.

@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Bantul"
-date: "2024-07-22"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Bantul. Demikian beberapa uraian yg data kami uraikan mengenai Harga Kawat Duri Per Meter di Bantul. Jika diantara anda sekalia..."
+title: Harga Kawat Duri Per Meter di Bantul
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Bantul. Demikian beberapa uraian yg data kami
+  uraikan mengenai Harga Kawat Duri Per Meter di Bantul. Jika diantara anda
+  sekalia...
 ---
 
 **Harga Kawat Duri Per Meter di Bantul** – Kawat adalah beberapa alat yg digunakan untuk mengait suatu benda tertentu. Kawat mempunyai wujud yang kecil dan juga panjang. Kawat dibikin dari logam yg mempunyai ukruan sungguh-sungguh panjang dan lentur. Kawat dapat diterapkan untuk begitu banyak hal seperti penghantar listrik, penghambat suatu benda, ranjau, dan bermacam-macam keadaan lainnya.

@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Petojo Jakarta"
-date: "2024-07-18"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Petojo Jakarta. Demikian penjelasan yg dapat kami uraikan perihal Harga Kawat Duri Per Meter di Petojo Jakarta apabila anda ber..."
+title: Harga Kawat Duri Per Meter di Petojo Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Petojo Jakarta. Demikian penjelasan yg dapat
+  kami uraikan perihal Harga Kawat Duri Per Meter di Petojo Jakarta apabila anda
+  ber...
 ---
 
 **Harga Kawat Duri Per Meter di Petojo Jakarta** – Kawat ialah beberapa benda yang diproduksi dari logam yang memiliki ukuran panjang dan juga lentur. Kawat dapat diaplikasikan untuk beragam hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih sangat banyak yang yang lain.

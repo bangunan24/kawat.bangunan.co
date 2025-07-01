@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tegal Parang Jakarta"
-date: "2024-07-27"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tegal Parang Jakarta. Seperti itulah informasi yang dapat kami rincikan mengenai Harga Kawat Duri Per Meter di Tegal Parang Jak..."
+title: Harga Kawat Duri Per Meter di Tegal Parang Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tegal Parang Jakarta. Seperti itulah informasi
+  yang dapat kami rincikan mengenai Harga Kawat Duri Per Meter di Tegal Parang
+  Jak...
 ---
 
 **Harga Kawat Duri Per Meter di Tegal Parang Jakarta** – Kawat adalah beberapa benda yg dibuat dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat diterapkan untuk beragam hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yang yang lain.

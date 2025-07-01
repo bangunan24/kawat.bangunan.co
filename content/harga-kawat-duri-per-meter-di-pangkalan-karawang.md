@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Pangkalan Karawang"
-date: "2024-07-01"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Pangkalan Karawang. Itulah informasi yang dapat kami rincikan perihal Harga Kawat Duri Per Meter di Pangkalan Karawang seandain..."
+title: Harga Kawat Duri Per Meter di Pangkalan Karawang
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Pangkalan Karawang. Itulah informasi yang dapat
+  kami rincikan perihal Harga Kawat Duri Per Meter di Pangkalan Karawang
+  seandain...
 ---
 
 **Harga Kawat Duri Per Meter di Pangkalan Karawang** – Kawat ialah salah satu benda yang dibuat dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat diaplikasikan untuk bermacam-macam hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yg lainnya.

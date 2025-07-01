@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Petukangan Jakarta"
-date: "2024-07-10"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Petukangan Jakarta. Itulah uraian yg dapat kami rincikan tentang Harga Kawat Duri Per Meter di Petukangan Jakarta bila anda ber..."
+title: Harga Kawat Duri Per Meter di Petukangan Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Petukangan Jakarta. Itulah uraian yg dapat kami
+  rincikan tentang Harga Kawat Duri Per Meter di Petukangan Jakarta bila anda
+  ber...
 ---
 
 **Harga Kawat Duri Per Meter di Petukangan Jakarta** – Kawat ialah beberapa benda yang terbuat dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat dipakai untuk bermacam2 hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yang yang lain.

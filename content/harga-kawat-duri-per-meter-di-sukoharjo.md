@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Sukoharjo"
-date: "2024-07-27"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Sukoharjo. Seperti itulah info yang bisa kami sampaikan mengenai Harga Kawat Duri Per Meter di Sukoharjo sekiranya anda menging..."
+title: Harga Kawat Duri Per Meter di Sukoharjo
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Sukoharjo. Seperti itulah info yang bisa kami
+  sampaikan mengenai Harga Kawat Duri Per Meter di Sukoharjo sekiranya anda
+  menging...
 ---
 
 **Harga Kawat Duri Per Meter di Sukoharjo** – Kawat ialah bagian benda yg dibuat dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat digunakan untuk beragam hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yg lainnya.

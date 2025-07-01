@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Rengasdengklok Karawang"
-date: "2024-07-31"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Rengasdengklok Karawang. Demikian info yg dapat kami jelaskan mengenai Harga Kawat Duri Per Meter di Rengasdengklok Karawang ka..."
+title: Harga Kawat Duri Per Meter di Rengasdengklok Karawang
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Rengasdengklok Karawang. Demikian info yg dapat
+  kami jelaskan mengenai Harga Kawat Duri Per Meter di Rengasdengklok Karawang
+  ka...
 ---
 
 **Harga Kawat Duri Per Meter di Rengasdengklok Karawang** – Kawat ialah salah satu benda yang diproduksi dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat dipakai untuk beraneka hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yang yang lain.
