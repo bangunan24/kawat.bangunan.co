@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tambun Bekasi"
-date: "2024-08-05"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tambun Bekasi. Itulah informasi yg dapat kami uraikan tentang Harga Kawat Duri Per Meter di Tambun Bekasi jikalau anda berminat..."
+title: Harga Kawat Duri Per Meter di Tambun Bekasi
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tambun Bekasi. Itulah informasi yg dapat kami
+  uraikan tentang Harga Kawat Duri Per Meter di Tambun Bekasi jikalau anda
+  berminat...
 ---
 
 **Harga Kawat Duri Per Meter di Tambun Bekasi** – Kawat ialah salah satu benda yg terbuat dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat diaplikasikan untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yang lainnya.

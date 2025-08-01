@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Klari Karawang"
-date: "2024-08-05"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Klari Karawang. Demikian informasi yang bisa kami sampaikan perihal Harga Kawat Duri Per Meter di Klari Karawang apabila anda b..."
+title: Harga Kawat Duri Per Meter di Klari Karawang
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Klari Karawang. Demikian informasi yang bisa
+  kami sampaikan perihal Harga Kawat Duri Per Meter di Klari Karawang apabila
+  anda b...
 ---
 
 **Harga Kawat Duri Per Meter di Klari Karawang** – Kawat yaitu bagian benda yg dibuat dari logam yg memiliki ukuran panjang dan juga lentur. Kawat dapat diaplikasikan untuk bermacam2 hal, apakah itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yg lainnya.

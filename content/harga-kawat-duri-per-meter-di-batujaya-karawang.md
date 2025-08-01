@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Batujaya Karawang"
-date: "2024-08-30"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Batujaya Karawang. Itulah sebagian informasi yang data kami jelaskan perihal Harga Kawat Duri Per Meter di Batujaya Karawang. A..."
+title: Harga Kawat Duri Per Meter di Batujaya Karawang
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Batujaya Karawang. Itulah sebagian informasi
+  yang data kami jelaskan perihal Harga Kawat Duri Per Meter di Batujaya
+  Karawang. A...
 ---
 
 **Harga Kawat Duri Per Meter di Batujaya Karawang** – Kawat adalah beberapa alat yang digunakan untuk mengait sebuah benda tertentu. Kawat mempunyai wujud yang kecil dan juga panjang. Kawat dibuat dari logam yang mempunyai ukruan sungguh-sungguh panjang dan lentur. Kawat bisa diaplikasikan untuk banyak hal seperti penghantar listrik, penghambat suatu benda, pengikat, dan beragam kondisi lainnya.

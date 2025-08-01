@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Maniis Purwakarta"
-date: "2024-08-02"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Maniis Purwakarta. Itulah info yg dapat kami uraikan tentang Harga Kawat Duri Per Meter di Maniis Purwakarta jika anda tertarik..."
+title: Harga Kawat Duri Per Meter di Maniis Purwakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Maniis Purwakarta. Itulah info yg dapat kami
+  uraikan tentang Harga Kawat Duri Per Meter di Maniis Purwakarta jika anda
+  tertarik...
 ---
 
 **Harga Kawat Duri Per Meter di Maniis Purwakarta** – Kawat merupakan bagian benda yang dibikin dari logam yang memiliki ukuran panjang dan juga lentur. Kawat dapat diterapkan untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yang yang lain.

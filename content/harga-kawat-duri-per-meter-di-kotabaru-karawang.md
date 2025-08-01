@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Kotabaru Karawang"
-date: "2024-08-11"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Kotabaru Karawang. Itulah uraian yang dapat kami sampaikan mengenai Harga Kawat Duri Per Meter di Kotabaru Karawang kalau anda..."
+title: Harga Kawat Duri Per Meter di Kotabaru Karawang
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Kotabaru Karawang. Itulah uraian yang dapat kami
+  sampaikan mengenai Harga Kawat Duri Per Meter di Kotabaru Karawang kalau
+  anda...
 ---
 
 **Harga Kawat Duri Per Meter di Kotabaru Karawang** – Kawat yakni beberapa benda yg dibikin dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat bisa diaplikasikan untuk bermacam-macam hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yg lainnya.

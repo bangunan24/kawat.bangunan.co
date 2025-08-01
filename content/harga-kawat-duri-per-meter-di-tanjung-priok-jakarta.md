@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tanjung Priok Jakarta"
-date: "2024-08-08"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tanjung Priok Jakarta. Seperti itulah penjelasan yg bisa kami sampaikan tentang Harga Kawat Duri Per Meter di Tanjung Priok Jak..."
+title: Harga Kawat Duri Per Meter di Tanjung Priok Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tanjung Priok Jakarta. Seperti itulah penjelasan
+  yg bisa kami sampaikan tentang Harga Kawat Duri Per Meter di Tanjung Priok
+  Jak...
 ---
 
 **Harga Kawat Duri Per Meter di Tanjung Priok Jakarta** – Kawat adalah salah satu benda yang dibuat dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat bisa diaplikasikan untuk bermacam-macam hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih begitu banyak yg yang lain.

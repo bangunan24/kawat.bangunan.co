@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Pondok Bambu Jakarta"
-date: "2024-08-28"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Pondok Bambu Jakarta. Itulah info yg bisa kami rincikan mengenai Harga Kawat Duri Per Meter di Pondok Bambu Jakarta jika anda b..."
+title: Harga Kawat Duri Per Meter di Pondok Bambu Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Pondok Bambu Jakarta. Itulah info yg bisa kami
+  rincikan mengenai Harga Kawat Duri Per Meter di Pondok Bambu Jakarta jika anda
+  b...
 ---
 
 **Harga Kawat Duri Per Meter di Pondok Bambu Jakarta** – Kawat ialah bagian benda yang dibikin dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat digunakan untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yang yang lain.
