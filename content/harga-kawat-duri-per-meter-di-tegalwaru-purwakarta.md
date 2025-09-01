@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tegalwaru Purwakarta"
-date: "2024-09-04"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tegalwaru Purwakarta. Seperti itulah info yang bisa kami sampaikan perihal Harga Kawat Duri Per Meter di Tegalwaru Purwakarta s..."
+title: Harga Kawat Duri Per Meter di Tegalwaru Purwakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tegalwaru Purwakarta. Seperti itulah info yang
+  bisa kami sampaikan perihal Harga Kawat Duri Per Meter di Tegalwaru Purwakarta
+  s...
 ---
 
 **Harga Kawat Duri Per Meter di Tegalwaru Purwakarta** – Kawat merupakan salah satu benda yg dibikin dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat digunakan untuk bermacam2 hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yang lainnya.

@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Majalaya Karawang"
-date: "2024-09-12"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Majalaya Karawang. Itulah uraian yg bisa kami uraikan mengenai Harga Kawat Duri Per Meter di Majalaya Karawang sekiranya anda b..."
+title: Harga Kawat Duri Per Meter di Majalaya Karawang
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Majalaya Karawang. Itulah uraian yg bisa kami
+  uraikan mengenai Harga Kawat Duri Per Meter di Majalaya Karawang sekiranya
+  anda b...
 ---
 
 **Harga Kawat Duri Per Meter di Majalaya Karawang** – Kawat merupakan bagian benda yang dibuat dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat bisa dipakai untuk beraneka hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih begitu banyak yg lainnya.

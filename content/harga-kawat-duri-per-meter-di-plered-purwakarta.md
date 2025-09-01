@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Plered Purwakarta"
-date: "2024-09-12"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Plered Purwakarta. Demikian info yg dapat kami sampaikan perihal Harga Kawat Duri Per Meter di Plered Purwakarta seandainya and..."
+title: Harga Kawat Duri Per Meter di Plered Purwakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Plered Purwakarta. Demikian info yg dapat kami
+  sampaikan perihal Harga Kawat Duri Per Meter di Plered Purwakarta seandainya
+  and...
 ---
 
 **Harga Kawat Duri Per Meter di Plered Purwakarta** – Kawat merupakan salah satu benda yg terbuat dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat bisa diaplikasikan untuk beragam hal, apakah itu untuk aliran alur listrik, menghalang sebuah benda, dan masih sangat banyak yg lainnya.

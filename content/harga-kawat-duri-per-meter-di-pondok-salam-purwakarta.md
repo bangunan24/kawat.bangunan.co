@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Pondok Salam Purwakarta"
-date: "2024-09-01"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Pondok Salam Purwakarta. Demikian informasi yg bisa kami uraikan tentang Harga Kawat Duri Per Meter di Pondok Salam Purwakarta..."
+title: Harga Kawat Duri Per Meter di Pondok Salam Purwakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Pondok Salam Purwakarta. Demikian informasi yg
+  bisa kami uraikan tentang Harga Kawat Duri Per Meter di Pondok Salam
+  Purwakarta...
 ---
 
 **Harga Kawat Duri Per Meter di Pondok Salam Purwakarta** – Kawat adalah beberapa benda yg dibikin dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat bisa dipakai untuk beraneka hal, apakah itu untuk aliran alur listrik, menghalang sebuah benda, dan masih begitu banyak yang lainnya.

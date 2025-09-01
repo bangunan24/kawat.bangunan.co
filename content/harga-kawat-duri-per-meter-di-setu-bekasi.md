@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Setu Bekasi"
-date: "2024-09-10"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Setu Bekasi. Itulah info yang dapat kami rincikan mengenai Harga Kawat Duri Per Meter di Setu Bekasi jikalau anda menginginkan..."
+title: Harga Kawat Duri Per Meter di Setu Bekasi
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Setu Bekasi. Itulah info yang dapat kami
+  rincikan mengenai Harga Kawat Duri Per Meter di Setu Bekasi jikalau anda
+  menginginkan...
 ---
 
 **Harga Kawat Duri Per Meter di Setu Bekasi** – Kawat adalah beberapa benda yg dibikin dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat bisa dipakai untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yg lainnya.

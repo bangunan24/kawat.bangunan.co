@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Legok Tangerang"
-date: "2024-09-09"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Legok Tangerang. Itulah info yang dapat kami uraikan mengenai Harga Kawat Duri Per Meter di Legok Tangerang jika anda tertarik..."
+title: Harga Kawat Duri Per Meter di Legok Tangerang
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Legok Tangerang. Itulah info yang dapat kami
+  uraikan mengenai Harga Kawat Duri Per Meter di Legok Tangerang jika anda
+  tertarik...
 ---
 
 **Harga Kawat Duri Per Meter di Legok Tangerang** – Kawat yaitu bagian benda yang diproduksi dari logam yg memiliki ukuran panjang dan juga lentur. Kawat dapat dipakai untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yg lainnya.

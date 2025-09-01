@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Warakas Jakarta"
-date: "2024-09-07"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Warakas Jakarta. Demikian info yang dapat kami rincikan mengenai Harga Kawat Duri Per Meter di Warakas Jakarta seandainya anda..."
+title: Harga Kawat Duri Per Meter di Warakas Jakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Warakas Jakarta. Demikian info yang dapat kami
+  rincikan mengenai Harga Kawat Duri Per Meter di Warakas Jakarta seandainya
+  anda...
 ---
 
 **Harga Kawat Duri Per Meter di Warakas Jakarta** – Kawat ialah salah satu benda yang dibuat dari logam yang mempunyai ukuran panjang dan juga lentur. Kawat dapat dipakai untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih banyak yg lainnya.

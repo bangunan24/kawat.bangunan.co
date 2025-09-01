@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Tulungagung"
-date: "2024-09-06"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Tulungagung. Itulah uraian yang dapat kami sampaikan mengenai Harga Kawat Duri Per Meter di Tulungagung jika anda tertarik dg p..."
+title: Harga Kawat Duri Per Meter di Tulungagung
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Tulungagung. Itulah uraian yang dapat kami
+  sampaikan mengenai Harga Kawat Duri Per Meter di Tulungagung jika anda
+  tertarik dg p...
 ---
 
 **Harga Kawat Duri Per Meter di Tulungagung** – Kawat ialah bagian benda yang dibuat dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat bisa diterapkan untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang sebuah benda, dan masih sangat banyak yang lainnya.

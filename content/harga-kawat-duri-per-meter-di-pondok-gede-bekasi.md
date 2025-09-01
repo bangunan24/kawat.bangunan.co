@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Pondok Gede Bekasi"
-date: "2024-09-08"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Pondok Gede Bekasi. Seperti itulah informasi yg bisa kami uraikan mengenai Harga Kawat Duri Per Meter di Pondok Gede Bekasi kal..."
+title: Harga Kawat Duri Per Meter di Pondok Gede Bekasi
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Pondok Gede Bekasi. Seperti itulah informasi yg
+  bisa kami uraikan mengenai Harga Kawat Duri Per Meter di Pondok Gede Bekasi
+  kal...
 ---
 
 **Harga Kawat Duri Per Meter di Pondok Gede Bekasi** – Kawat merupakan bagian benda yg diproduksi dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat dipakai untuk bermacam2 hal, baik itu untuk aliran alur listrik, menghalang suatu benda, dan masih begitu banyak yang lainnya.

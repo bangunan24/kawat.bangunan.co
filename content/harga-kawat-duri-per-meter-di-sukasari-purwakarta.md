@@ -1,9 +1,12 @@
 ---
-title: "Harga Kawat Duri Per Meter di Sukasari Purwakarta"
-date: "2024-09-13"
-categories: 
-  - "harga"
-description: "Harga Kawat Duri Per Meter di Sukasari Purwakarta. Seperti itulah uraian yang bisa kami rincikan mengenai Harga Kawat Duri Per Meter di Sukasari Purwakarta k..."
+title: Harga Kawat Duri Per Meter di Sukasari Purwakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Harga Kawat Duri Per Meter di Sukasari Purwakarta. Seperti itulah uraian yang
+  bisa kami rincikan mengenai Harga Kawat Duri Per Meter di Sukasari Purwakarta
+  k...
 ---
 
 **Harga Kawat Duri Per Meter di Sukasari Purwakarta** – Kawat yaitu beberapa benda yg dibikin dari logam yg mempunyai ukuran panjang dan juga lentur. Kawat dapat dipakai untuk bermacam2 hal, apakah itu untuk aliran alur listrik, menghalang suatu benda, dan masih banyak yang yang lain.
