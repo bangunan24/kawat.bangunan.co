@@ -1,49 +1,51 @@
 testimonials:
   - avatar: /images/admin/avatar1.png
-    name: Deni
+    name: Eko
     message: >-
       Saya menggunakan layanan pemasangan kawat pagar dari kawat.bangunan.co
-      untuk proyek saya, dan hasilnya sangat memuaskan. Pemasangan baik dan
-      kawat pagarnya kokoh.
+      untuk rumah saya, dan hasilnya sangat memuaskan. Pemasangan rapi dan kawat
+      pagarnya tahan lama.
     response: Kami menghargai kepercayaan Anda. Terima kasih telah memilih layanan kami!
     rating: 4
   - avatar: /images/admin/avatar2.png
-    name: Siti
+    name: Lina
     message: >-
       Saya sangat puas dengan kawat pagar yang saya beli dari kawat.bangunan.co.
-      Kualitas tahan lama dan instalasinya cepat.
-    response: Terima kasih atas ulasan Anda. Kami senang dapat memenuhi kebutuhan Anda!
+      Kualitas terbaik dan instalasinya cepat.
+    response: >-
+      Kami sangat menghargai ulasan Anda. Senang mendengar bahwa Anda puas
+      dengan layanan dan produk kami.
     rating: 5
   - avatar: /images/admin/avatar3.png
-    name: Ali
+    name: Agus
     message: >-
       Kawat pagar dari kawat.bangunan.co sangat kokoh dan cocok untuk proyek
-      komersial saya. Proses pemasangan cepat dan terjamin.
+      perumahan saya. Proses pemasangan lancar dan efisien.
     response: >-
-      Terima kasih! Kami berkomitmen untuk menyediakan kawat pagar unggul dengan
-      layanan yang prima.
-    rating: 4
-  - avatar: /images/admin/avatar4.png
-    name: Ari
-    message: >-
-      Saya terkesan dengan kawat pagar dari kawat.bangunan.co. Mutu barangnya
-      sangat baik dan instalasinya tahan lama untuk proyek saya.
-    response: >-
-      Senang mendengar Anda puas dengan kawat pagar kami. Terima kasih atas
+      Kami senang bisa memenuhi kebutuhan Anda. Terima kasih atas
       kepercayaannya!
     rating: 4
-  - avatar: /images/admin/avatar5.png
-    name: Fitri
+  - avatar: /images/admin/avatar4.png
+    name: Dedi
     message: >-
-      Saya puas dengan layanan dari kawat.bangunan.co. Kawat pagarnya kokoh dan
-      sesuai dengan proyek saya.
+      Kawat pagar dari kawat.bangunan.co kokoh dan sangat sesuai untuk proyek
+      saya.
+    response: >-
+      Kami sangat menghargai kepercayaan Anda. Terima kasih sudah memilih
+      layanan kami!
+    rating: 4
+  - avatar: /images/admin/avatar5.png
+    name: Siti
+    message: >-
+      Pelayanan kawat.bangunan.co hebat. Kawat pagar yang saya instal
+      berkualitas tinggi dan sesuai dengan keinginan saya.
     response: Terima kasih! Kami senang dapat membantu Anda dengan kawat pagar unggul.
     rating: 4
   - avatar: /images/admin/avatar6.png
-    name: Wawan
+    name: Galih
     message: >-
-      Kawat pagar dari kawat.bangunan.co sangat sesuai dengan kebutuhan proyek
-      pembangunan rumah saya. Proses pemasangan cepat dan terjamin.
+      Saya senang dengan kawat pagar dari kawat.bangunan.co. Layanan
+      pemasangannya cepat dan sesuai dengan kebutuhan proyek saya.
     response: >-
       Terima kasih telah mempercayakan proyek Anda kepada kami. Kami senang Anda
       puas dengan hasilnya.
