@@ -1,6 +1,6 @@
 ---
 title: Harga Kawat Duri Per Meter di Kedung Jaya Bogor
-date: '2025-05-01'
+date: '2026-05-01'
 categories:
   - harga
 description: >-
