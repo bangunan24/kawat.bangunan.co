@@ -1,6 +1,6 @@
 ---
 title: Harga Kawat Duri Per Meter di Cikalong Wetan
-date: '2025-06-01'
+date: '2026-06-01'
 categories:
   - harga
 description: >-
