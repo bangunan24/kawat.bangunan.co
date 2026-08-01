@@ -1,6 +1,6 @@
 ---
 title: Harga Kawat Duri Per Meter di Trenggalek
-date: '2025-08-01'
+date: '2026-08-01'
 categories:
   - harga
 description: >-
