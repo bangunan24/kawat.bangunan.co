@@ -1,6 +1,6 @@
 ---
 title: Harga Kawat Duri Per Meter di Tulungagung
-date: '2025-09-01'
+date: '2026-09-01'
 categories:
   - harga
 description: >-

@@ -1,6 +1,6 @@
 ---
 title: Harga Kawat Duri Per Meter di Kebon Kelapa Jakarta
-date: '2025-09-01'
+date: '2026-09-01'
 categories:
   - harga
 description: >-
